@@ -1,9 +1,7 @@
 ---
 title: Light Wolf Design
 ---
-# Om mig
-
-Hej, jag heter Christina och är en freelance ljusdesigner som söker nya utmaningar.
+Lösningsorienterad är mitt ledord och jag är en person som aldrig är rädd att göra det lilla extra. Att lyssna till kundens behov är prio ett och för att uppnå bästa resultat trivs jag med att arbetar efter ordning och struktur  En av mina styrkor är att jag kan behålla mitt lugn även i situationer som kan upplevas stressande. Och mitt namn, det är **Christina**.
 
 Vad är belysning för mig?
 
