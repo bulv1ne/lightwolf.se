@@ -1,4 +1,4 @@
-# Om mig själv
+# Om mig
 
 Hej, jag heter Christina och är en freelance ljusdesigner som söker nya utmaningar.
 
